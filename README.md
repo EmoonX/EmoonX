@@ -1,3 +1,3 @@
 **☕ Coffee | 💂‍♂️ London | 😳 Introvert | 🖖 TBBT | 🚀 Star Wars | 🐶 Pugs | 🏴 Antifa | 🐍 Ancap | 👨‍💻 Node.js | ...**
 
-(am I hipster and post-modern enough yet?)
+_(Disclaimer: most of those items aren't true for me; just wanted to get along with post-modernism)_
