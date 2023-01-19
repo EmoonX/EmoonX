@@ -1,3 +1,3 @@
-**☕ Coffee | 💂‍♂️ London | 😳 Introvert | 🖖 TBBT | 🚀 Star Wars | 🐶 Pugs | 🏴 Antifa | 🐍 Ancap | 👨‍💻 Node.js ...**
+Not sure what to say here.
 
-_(Disclaimer: most of these items are far from being true for me; just wanted to get along with Github's postmodernism)_
+Original pfp credit goes to [mangotri](https://mangotri.tumblr.com/post/646858697615753216/i-needed-another-moony-icon-so-here-it-is).
